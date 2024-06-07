@@ -10,7 +10,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/jayom-oza/](https://www.linkedin.com/in/jayom-oza/)
 
-- ⚡ Fun fact **You've volunteered at an NGO to teach underprivileged children in your community.**
+- ⚡ Fun fact **I have volunteered at an NGO to teach underprivileged children in your community.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
